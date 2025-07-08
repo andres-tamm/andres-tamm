@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Hi, I'm Andrés, CTO at Aurore, where I lead cutting-edge technology initiatives.<br>💡 Passionate about innovation, AI, and digital transformation to drive impactful solutions.<br>👨‍💻 Backed by strong technical skills, I excel at creating scalable and efficient software solutions.<br>👥 Skilled in team leadership and fostering collaboration across remote teams.<br>📈 Focused on strategic planning and optimizing processes for growth and efficiency.<br>🌟 Dedicated to delivering exceptional results for clients and staying ahead of tech trends.
+🚀 Hi, I'm Andrés!.<br>💡 Passionate about innovation, AI, and digital transformation to drive impactful solutions.<br>👨‍💻 Backed by strong technical skills, I excel at creating scalable and efficient software solutions.<br>👥 Skilled in team leadership and fostering collaboration across remote teams.<br>📈 Focused on strategic planning and optimizing processes for growth and efficiency.<br>🌟 Dedicated to delivering exceptional results for clients and staying ahead of tech trends.
 
 
 ## 🌐 Socials:
